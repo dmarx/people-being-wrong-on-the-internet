@@ -1,3 +1,3 @@
-# people-being-wrong-on-the-internet
+# COME. AT. ME.
 
 sometimes we gotta take these things to long form
